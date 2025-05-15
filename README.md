@@ -80,7 +80,7 @@ Here are some of my featured projects:
 ### 📫 Let's Connect!
 
 - 📩 Email: cheptoopatience81@gmail.com 
-- 💼 LinkedIn: [(https://linkedin.com/in/your-profile)](https://www.linkedin.com/in/patience-cheptoo-73499015a/)
+- 💼 LinkedIn: [(https://www.linkedin.com/in/patience-cheptoo-73499015a/)]
 
 ---
 
